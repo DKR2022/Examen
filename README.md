@@ -4,7 +4,7 @@ Bienvenue sur Explorateurs du Monde, une source inépuisable d'inspiration et d'
 
 Suivez-nous sur nos réseaux sociaux pour rester connecté avec notre communauté de voyageurs. Abonnez-vous à notre newsletter pour ne manquer aucune mise à jour, et partagez vos propres aventures avec le hashtag #ExplorateursDuMonde.
 
-Suivez moi sur intagram : [(https://www.instagram.com/armedooo/)] 
+Suivez moi sur intagram : [] (https://www.instagram.com/armedooo/)
 
 Préparez-vous à explorer le monde avec nous, un article à la fois !
 
