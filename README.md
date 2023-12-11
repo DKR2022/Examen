@@ -6,8 +6,7 @@ Suivez-nous sur nos réseaux sociaux pour rester connecté avec notre communaut�
 
 Suivez moi sur intagram : [
 
-] (https://www.instagram.com/armedooo/)
-
+](https://humanites-numeriques.univ-paris8.fr/-Master-G-S-I-)
 Préparez-vous à explorer le monde avec nous, un article à la fois !
 
 Fait à PARIS le 17/11/2023
